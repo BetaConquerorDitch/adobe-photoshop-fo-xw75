@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS exclusive Panel: export to SVG & collaboration, the #1 panel. Includes export to SVG and collaboration for a
 
 
 
